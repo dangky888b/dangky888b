@@ -9,7 +9,7 @@ Cùng tham khảo bài viết để biết các bước [đăng ký 888b](https:
 những bước đăng ký 888b nhanh như chớp
 các bước đăng ký 888b rất đơn giản, bạn hãy thực hiện theo gợi ý dưới đây.
 
-Bước 1: truy nã cập vào đúng link website https://888b.care/ hoặc app chính chủ của nhà cái 888b, đi đến ngay phần “Đăng ký”.
+Bước 1: truy nã cập vào đúng link website hoặc app chính chủ của nhà cái 888b, đi đến ngay phần “Đăng ký”.
 Bước 2: Bạn cần điền tất cả những thông tin mà nhà cái yêu cầu theo biểu mẫu, gồm mang tên đăng nhập, số điện thoại, email, mật khẩu và mã giới thiệu (nếu có).
 Bước 3: khi đã hoàn tất xong việc nhập dữ liệu thì nhấp vào ô “Đăng ký” ở phía dưới và chờ sàn game phản hồi.
 Bước 4: Nhà cái sẽ gửi thông tin cho bạn để xác nhận đã đúng thông báo cá nhân hay chưa. Sau ấy, anh em lặp lại thao tác để nhấp tay vào ô “Đăng ký”.
